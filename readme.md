@@ -67,4 +67,9 @@ El vídeo *Hero* es la primera impresión. No puede fallar.
 
 La estrategia multimedia para NEXO es un ejercicio de **restricción creativa**.
 
+
 > Al limitarnos al blanco y negro, logramos una identidad visual potente que hubiera sido imposible mezclando colores. La inyección quirúrgica del **Naranja 🟧** logra el objetivo final: posicionar a NEXO como una agencia **seria en sus procesos, pero vibrante en sus ideas.**
+
+---
+
+**✍️ Autores:** Elias Maatalat y Lucilene Vidal
